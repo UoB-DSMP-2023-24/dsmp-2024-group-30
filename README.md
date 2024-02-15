@@ -19,7 +19,9 @@ Lloyds Bank excels in customer service, offering convenient financial services t
 Some concrete steps：
 1.Switch to a new mortgage deal：
 Get peace of mind by securing a new fixed deal and switch as soon as possible or, start when your current deal comes to an end.
+
 2.Make interest only payments
 Make interest only payments for six months to reduce your monthly payment amount and help get your budget back on track.
+
 3.Extend your mortgage term
 Extend your mortgage term to reduce your monthly payment amount and help you budget better for the long-term.
